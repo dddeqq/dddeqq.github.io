@@ -1,4 +1,4 @@
 # ZhuJun
 简约个人主页、自适应
-![alt 预览图](https://cdn.nutssss.cn/wp-content/uploads/2020/04/1585711856-1.png)
+![alt 预览图](https://kyun.ltyuanfang.cn/tc/2020/09/05/3a98a99156579.png)
 
